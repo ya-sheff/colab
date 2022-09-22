@@ -1,3 +1,1 @@
 # Teamwork!
-
-I'm happy!
